@@ -7,7 +7,3 @@ Nous travaillons aux côtés de nos partenaires pour concevoir, construire et g�
 Basée dans la région du Grand Genève, Third Place Making intervient en Europe, grâce à son écosystème d’acteurs qualifiés dans les multiples activités qu’implique la production de tiers-lieux.
 
 contact@thirdplacemaking.com
-
---
-
-Geneva Area, Switzerland / France
